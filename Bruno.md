@@ -1,3 +1,3 @@
-My favorite quotes:
+My favorite quote:
 
 "Tu bluffes Martoni!"
